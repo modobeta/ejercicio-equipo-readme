@@ -3,3 +3,16 @@
 — W. Edwards Deming
 El que madruga... encuentra todo cerrado.
 
+
+
+
+
+
+
+
+
+
+
+
+
+## ad astra per aspera
