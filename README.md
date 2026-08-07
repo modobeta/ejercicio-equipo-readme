@@ -3,7 +3,7 @@
 — W. Edwards Deming
 El que madruga... encuentra todo cerrado.
 
-
+"Ayer el código fallaba. Hoy funciona. No toqué nada. Tengo miedo."
 
 
 
